@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Chirag Agarwal aka @Mcverickk
-- 🏫 I'm a final year B.E. Electrical & Electronics student at BITS Pilani Goa.
+- 🏫 I'm a B.E. Electrical & Electronics graduate from BITS Pilani.
 - ⚒️ I work on NFTs, DeFi and everything Web3!
 - 🥳 I enjoy Music, Mountains, Travelling, Cricket, F1, and ...
 - 📫 Reach me at chiragagarwal2001@gmail.com
